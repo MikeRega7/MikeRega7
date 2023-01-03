@@ -1,4 +1,4 @@
-Hello I am learning pestenting, also that I like the subject of investments and personal finance maybe my tools or repositories do not serve you but I do it mostly to practice :)
+Hello I am learning pestenting maybe my tools or repositories do not serve you but I do it mostly to practice :)
 
 ## If you want to support me you can suscribe to my youtube channel
 
